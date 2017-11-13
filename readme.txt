@@ -1,1 +1,1 @@
-Created by Shaludin
+This text was changed by unknown author.
